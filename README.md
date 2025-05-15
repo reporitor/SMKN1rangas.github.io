@@ -1,0 +1,1 @@
+# SMKN1rangas.github.io
